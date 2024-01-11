@@ -4,5 +4,5 @@
 
 Perkenalkan nama saya **Muhammad Fariz Dzuhreza**.
 
-Saya seorang **Mahasiswa** semester 6 di Universitas Mikroskil Jurusan Teknik Informatika.\
-Saya Sedang Mempelajari SIB Dicoding Batch 2
+Alamat : Jl Garu II B GG. Amal no 45 g
+no Hp : 081260204829
